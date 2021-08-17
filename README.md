@@ -22,6 +22,9 @@
 ---> Telegram: @GreyAreaArt
 
 ---> Medium Articles & Our Philosophy: https://greyareaart.medium.com/
+
+---> Tumbler: https://greyareaart.tumblr.com/?og=1
+https://greyareaart.tumblr.com/?og=1
   
   --> We also have a native forum on our website.
 
