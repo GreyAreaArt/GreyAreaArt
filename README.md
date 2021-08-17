@@ -8,13 +8,13 @@
 - 💞️ I’m looking to collaborate on art pieces, dApps, and more!
 
 - 📫 How to reach me:
-  --> Instagram: @GreyAreaFineArt
-  --> Twitter: @AreaFine
-  --> Facebook: @GreyAreaFineArt
-  --> Reddit: r/GreyAreaFineArt
-  --> Pinterest: @GreyAreaFineArt
-  --> Telegram: @GreyAreaArt
-  --> Medium Articles & Our Philosophy: https://greyareaart.medium.com/
+---> Instagram: @GreyAreaFineArt
+---> Twitter: @AreaFine
+---> Facebook: @GreyAreaFineArt
+---> Reddit: r/GreyAreaFineArt
+---> Pinterest: @GreyAreaFineArt
+---> Telegram: @GreyAreaArt
+---> Medium Articles & Our Philosophy: https://greyareaart.medium.com/
   
   --> We also have a native forum on our website.
 
